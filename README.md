@@ -1,3 +1,3 @@
 # Hello World
-What up world this is me get ready I'm coming in hot
+Just for practice
 Sunday Sept. 13, 2015
